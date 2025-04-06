@@ -12,5 +12,6 @@
 - if ur searching for me i'm commonly @ **spawn** or **bnha** area. othrwise i've wandered 2 some random isolated part of the map lol sorry!~
 - while you're here, it'd be nice if you signed my **[atabook](https://keaj.atabook.org)**!
 - for the love of the pharaoh, please **STOP** asking me for my socials. **i don't use twt / insta / etc anymore**. i am most active on **discord**, **spacehey**, & **pinterest**.
+- i love the pony town emojis! my favorite is the alien emoji. its so cute. whisper me an alien emoji; it will brighten my day & i will kiss u.
 
 ![me preparing to duel again](https://i.pinimg.com/originals/e4/3e/af/e43eaf4821ff64d21ee718aeadf68418.gif)
