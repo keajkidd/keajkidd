@@ -2,7 +2,7 @@
 
 <p align="center"><b>"</b> <em>if you can't understand the darkness in your opponent's heart, you will never understand the pain and suffering of others.</em> <b>"</b></p>
 
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/puzzle"/> i throw rocks at @Serpent-of-Eden's windows</p>
+<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/puzzle"/> i throw rocks at @Serpent-of-Eden's windows (*´∇`)┌θ☆(ﾉ>_<)ﾉ</p>
 
 <p align="center"><img src="https://dl.glitter-graphics.com/pub/1452/1452137t12wjgui40.gif"/></p>
 
