@@ -20,6 +20,8 @@
 <p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(4).gif"/> for the love of the pharaoh, please <b>STOP</b> asking me for my socials. <b>i don't use twt / insta / etc anymore</b>.</p>
 <p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(3).gif"/> while you're here, it'd be nice if you signed my <b><a href="https://keaj.atabook.org"/>atabook</a></b>!</p>
 
+<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/yeah.png" width="750" height="65"/></p>
+
 <p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ummmbye.gif"/></p>
 
 <p align="center"><img src="https://dl.glitter-graphics.com/pub/1388/1388207lsv6wkmxpv.gif"/><img src="https://dl.glitter-graphics.com/pub/1387/1387885sazrmgjl8y.gif"/><img src="https://dl.glitter-graphics.com/pub/1388/1388214sa628pu7v5.png"/><img src="https://dl.glitter-graphics.com/pub/1382/1382511y6mwr2f8xc.gif"/><img src="https://dl.glitter-graphics.com/pub/1382/1382506psln15lbym.gif"/><img src="https://dl.glitter-graphics.com/pub/2224/2224591tk2n9dg62p.gif"/></p>
@@ -35,5 +37,3 @@
   </p>
 
 <p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(6).gif"/></p>
-
-
