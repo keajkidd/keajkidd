@@ -2,7 +2,7 @@
 
 <p align="center"><b>"</b> <em>if you can't understand the darkness in your opponent's heart, you will never understand the pain and suffering of others.</em> <b>"</b></p>
 
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/puzzle"/> i throw rocks at @Serpent-of-Eden's windows (*´∇`)┌θ☆(ﾉ>_<)ﾉ</p>
+<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/puzzle"/> i throw rocks at <b><a href="https://github.com/Serpent-of-Eden">@Serpent-of-Eden's</a></b> windows (*´∇`)┌θ☆(ﾉ>_<)ﾉ</p>
 
 <p align="center"><img src="https://dl.glitter-graphics.com/pub/1452/1452137t12wjgui40.gif"/></p>
 
@@ -12,8 +12,8 @@
 
 <p align="center"><img src="https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/bc1469a198b99e05-d8/s75x75_c1/43559104a35670dc8a62ce613ea1d838bc9102c1.gifv"/> all of my info <sub>(byi, dni, interests, etc.)</sub> can be found on my <b><a href="https://keaj.straw.page">main strawpage.</a></b></p>
 <p align="center"><img src="https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/bc1469a198b99e05-d8/s75x75_c1/43559104a35670dc8a62ce613ea1d838bc9102c1.gifv"/> <b>pony town-specific info</b> can be found on my <b><a href="https://www.patreon.com/keajkidd">patreon</a></b> and my <b><a href="https://kingofgames.straw.page">id strawpage.</a></b></p>
-<p align="center"><img src="https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/bc1469a198b99e05-d8/s75x75_c1/43559104a35670dc8a62ce613ea1d838bc9102c1.gifv"/> my discord is <b>keaj</b> so if you fr me, pls tell me asap othrwise i'll unadd u aftr a day :]</p>
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(2).gif"/> i am most active on <b>discord</b>, <b>spacehey</b>, & <b>pinterest</b>.</p>
+<p align="center"><img src="https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/bc1469a198b99e05-d8/s75x75_c1/43559104a35670dc8a62ce613ea1d838bc9102c1.gifv"/> my discord is <b><a href="https://discordid.netlify.app/?id=256969554209669120">keaj</a></b> so if you fr me, pls tell me asap othrwise i'll unadd u aftr a day :]</p>
+<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(2).gif"/> i am most active on <b><a href="https://discordid.netlify.app/?id=256969554209669120">discord</a></b>, <b><a href="https://spacehey.com/keajkidd">spacehey</a></b>, & <b>pinterest</b>.</p>
 <p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery02/3632fd54.gif?v=d7271437"/> if you're wondering how to refer to me, then you can check out my <b><a href="https://en.pronouns.page/@keaj">pronouns page</a></b>.</p>
 <p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery02/3632fd54.gif?v=d7271437"/> if ur searching for me i'm commonly @ <b>spawn</b> or <b></b>bnha</b> area. othrwise i've wandered 2 some random isolated part of the map lol sorry!~</p>
 <p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(4).gif"/> don't cover/sit on me or my friends. <b>you will get <em>blocked</em></b>.</p>
