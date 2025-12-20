@@ -38,4 +38,4 @@
 
 <p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(6).gif"/></p>
 
-<p align="center"><a href="https://keajkidd.straw.page/">18+ strawpage</a></p>
+<p align="center"><a href="https://keajkidd.straw.page/">18+ strawpage or wtvr. it's vulgar. warned you!</a></p>
