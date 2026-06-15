@@ -35,7 +35,7 @@ there's sufficient information about me above but if you're really mega curious 
 
 <img align="right" src="https://64.media.tumblr.com/c2cf3441e1e1a3353853c3d6f9905e69/5c6a2c2806bab9ac-11/s400x600/bfc250ede0c2bf2b37c626ca504cfc0db0679fc5.gifv" height="344" width="auto"/>
 
-<h3>HAII i don't know what 2 put down here somewan giv me ideas...</h3>
+<h3>i dunno wat 2 put down here somewan giv me ideas...</h3>
 
 <p clear="left">
 haiii oomfs <a href="https://github.com/Serpent-of-Eden">@Serpent-Of-Eden</a> <a href="https://github.com/foulblaze">@foulblaze</a> <a href="https://github.com/tongariz">@tongariz</a> <a href="https://rentry.co/heartmai">@heartmai</a> & other oomfs i sit w/ that don't have links & also all my green names i love u alllll hehehehe >ᴗ<
