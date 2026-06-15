@@ -16,7 +16,7 @@ there's sufficient information about me above but if you're really mega curious 
 - i genuinely dgaf abt ship discourse and i dont id as an anti or a pro because i dont CAREEEEEUHH. if you interpret this as me being "neutral" about it you can block me now. ^_^ that being said i'll also note i do like tropes that can be considered problematic or toxic (such as age gap, unhealthy obsessions (yanderes), & imbalanced power dynamics (especially owner & pet), as some examples) so block if that bothers you as well.
 - i consume my interests critically bc i know how to engage with media normally sooo
 - do not copy my PONIES!!! <b>YOU WILL BE BLOCKED!!!</b> DUHH!! AND ON THAT NOTE, IF IT DOESNT HAVE MY GITHUB LINKED, ITS NOT ME. this is my only account & i only play on the 18+ server ヽ(ー_ー )ノ
-- i like to afk/offtab all day below spawn while doing other bullshit so please whisper to interact! also my public/local chat is OFF so um pls WHISPER to interact!!! blehhh (^_<)〜
+- i like to afk/offtab all day below spawn while doing other bullshit so please whisper to interact! also my public/local chat is OFF so um pls WHISPER to interact!!! blehhh (^_<)〜 also i dont rp on pony town bc of character limit (×_×) DONT ASK OK? OK
 - sometimes i go inactive/offline with no warning because of exhaustion, illness, or otherwise life but i always check in when i can.. (￣ω￣;)
 - kisses boops cuddles etc are absolutely fine especially if i'm sitting alone!! if im with someone please whisper to ask first! ヽ(・∀・)ﾉ
 <div align="center">
