@@ -1,43 +1,53 @@
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/me%20irl.gif"/></p>
+<img align="left" src="https://static.wikia.nocookie.net/charisma-house/images/a/a7/%28Iori%29_First_Main_Visual.png/revision/latest?cb=20211006000045" height="843"/>
 
-<p align="center"><b>"</b> <em>if you can't understand the darkness in your opponent's heart, you will never understand the pain and suffering of others.</em> <b>"</b></p>
+<h3>WOOF!! HAII!!! i'm keaj or rae or <a href="https://en.pronouns.page/@keaj">other names</a> !! (๑ᵔ⤙ᵔ๑)〜♪</h3>
 
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/puzzle"/> i throw rocks at <b><a href="https://github.com/Serpent-of-Eden">@Serpent-of-Eden's</a></b> windows (*´∇`)┌θ☆(ﾉ>_<)ﾉ</p>
+⌗ 20, any + neo prns, afrolatina, neurodivergent, disordered, queer & a PERVERT !!!!!
 
-<p align="center"><img src="https://dl.glitter-graphics.com/pub/1452/1452137t12wjgui40.gif"/></p>
+there's sufficient information about me above but if you're really mega curious & hungry for more of me (who wouldn't be?) then you can check out my links on the left. otherwise let's get to the quick and dirty, wan wan! (°◡°♡)
 
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/yeah.png" width="750" height="65"/></p>
 
-<h3 align="center">haillour :3 pls don't fr if we havn't at least chatted a lil !!</h3>
+  <h3><p align="center">BYI:</p></h3>
 
-<p align="center"><img src="https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/bc1469a198b99e05-d8/s75x75_c1/43559104a35670dc8a62ce613ea1d838bc9102c1.gifv"/> all of my info <sub>(byi, dni, interests, etc.)</sub> can be found on my <b><a href="https://keaj.straw.page">main strawpage.</a></b></p>
-<p align="center"><img src="https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/bc1469a198b99e05-d8/s75x75_c1/43559104a35670dc8a62ce613ea1d838bc9102c1.gifv"/> <b>pony town-specific info</b> can be found on my <b><a href="https://kingofgames.straw.page">id strawpage.</a></b></p>
-<p align="center"><img src="https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/bc1469a198b99e05-d8/s75x75_c1/43559104a35670dc8a62ce613ea1d838bc9102c1.gifv"/> my discord is <b><a href="https://discordid.netlify.app/?id=256969554209669120">keaj</a></b> so if you fr me, pls tell me asap othrwise i'll unadd u aftr a day :]</p>
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(2).gif"/> i am most active on <b><a href="https://discordid.netlify.app/?id=256969554209669120">discord</a></b>, <b><a href="https://spacehey.com/keaj">spacehey</a></b>, & <b>pinterest</b>.</p>
-<p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery02/3632fd54.gif?v=d7271437"/> if you're wondering how to refer to me, then you can check out my <b><a href="https://en.pronouns.page/@keaj">pronouns page</a></b>.</p>
-<p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery02/3632fd54.gif?v=d7271437"/> if ur searching for me i'm commonly @ <b>spawn</b> or a bit below it. othrwise i've wandered 2 some random isolated part of the map OR i'm with mai oomfs!!</p>
-<p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery02/3632fd54.gif?v=d7271437"/> if i'm sitting on, with, or near someone <b>problematic</b> or otherwise <b>has a bad reputation</b>, i most likely <b>hid</b> them and therefore <b>cannot see them</b>. i do permahide <b>very</b> freely, so sorry if it causes any confusion on my seating positions!</p>
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(4).gif"/> it has come to my attention that my skins are being copied 1:1 and plagarized without credit. so, <b>if a pony does not have this github linked, it is <em>not</em> me</b>. this is my only account, and i only play on the 18+ server.</p>
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(4).gif"/> don't cover/sit on me or my friends. <b>you will get <em>blocked</em></b>.</p>
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(4).gif"/> for the love of the pharaoh, please <b>STOP</b> asking me for my socials. <b>i don't use twt / insta / etc anymore</b>.</p>
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(3).gif"/> while you're here, it'd be nice if you signed my <b><a href="https://keaj.atabook.org"/>atabook</a></b>!</p>
 
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/yeah.png" width="750" height="65"/></p>
+- i'm an <b>adult</b> so i don't want minors interacting with me in any capacity thanks!
+- i have no dni but that does not mean i dont have boundaries LOL! i finger the fuck out of my block button and hide freely and with no warning. i have permahide muscle memory and likely sit on people all the time bc i cant see them so sorry if i sit my pixel pony butt pixels on yew.. *(ﾉωﾉ)
+- i'm a selfshipper, fujoshi AND i do oc x canon and im ill about all three so be warned it's like revving a chainsaw if they're mentioned around me (\*^‿^*)
+- i genuinely dgaf abt ship discourse and i dont id as an anti or a pro because i dont CAREEEEEUHH. if you interpret this as me being "neutral" about it you can block me now. ^_^ that being said i'll also note i do like tropes that can be considered problematic or toxic (such as age gap, unhealthy obsessions (yanderes), & imbalanced power dynamics (especially owner & pet), as some examples) so block if that bothers you as well.
+- i consume my interests critically bc i know how to engage with media normally sooo
+- do not copy my PONIES!!! <b>YOU WILL BE BLOCKED!!!</b> DUHH!! AND ON THAT NOTE, IF IT DOESNT HAVE MY GITHUB LINKED, ITS NOT ME. this is my only account & i only play on the 18+ server ヽ(ー_ー )ノ
+- i like to afk/offtab all day below spawn while doing other bullshit so please whisper to interact! also my public/local chat is OFF so um pls WHISPER to interact!!! blehhh (^_<)〜
+- sometimes i go inactive/offline with no warning because of exhaustion, illness, or otherwise life but i always check in when i can.. (￣ω￣;)
+- kisses boops cuddles etc are absolutely fine especially if i'm sitting alone!! if im with someone please whisper to ask first! ヽ(・∀・)ﾉ
+<div align="center">
 
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ummmbye.gif"/></p>
+![](https://komarev.com/ghpvc/?username=keajkidd&color=2E990E&style=plastic&label=slave_contracts_signed)
 
-<p align="center"><img src="https://dl.glitter-graphics.com/pub/1388/1388207lsv6wkmxpv.gif"/><img src="https://dl.glitter-graphics.com/pub/1387/1387885sazrmgjl8y.gif"/><img src="https://dl.glitter-graphics.com/pub/1388/1388214sa628pu7v5.png"/><img src="https://dl.glitter-graphics.com/pub/1382/1382511y6mwr2f8xc.gif"/><img src="https://dl.glitter-graphics.com/pub/1382/1382506psln15lbym.gif"/><img src="https://dl.glitter-graphics.com/pub/2224/2224591tk2n9dg62p.gif"/></p>
+</div>
 
-<p align="center"><sup>i love the pony town emojis! my favorite is :alien:. it's so cute! whisper me a :alien:!! it will brighten my day & i will kiss u.</sup></p>
 
 <p align="center">
-<h4 align="center"
-  
-![](https://komarev.com/ghpvc/?username=keajkidd&color=yellow&style=plastic&label=worshippers)
-  </h4>
+  <br>
+<img clear="left" align="center" src="https://static.wikia.nocookie.net/charisma-house/images/f/fe/%28Iori%29_They%27re_Just_Ordinary_Guys_LINE_Stickers_1.png/revision/latest?cb=20241011040708" height="100" width="auto">
+  <br>
+<i>"Selflessness, contribution, service!"</i>
+</p>
 
-  </p>
+<p><br></p>
 
-<p align="center"><img src="https://file.garden/ZX4RWS8pMXxJ-6QI/ygo/ezgif.com-webp-to-gif-converter%20(6).gif"/></p>
+<img align="right" src="https://64.media.tumblr.com/c2cf3441e1e1a3353853c3d6f9905e69/5c6a2c2806bab9ac-11/s400x600/bfc250ede0c2bf2b37c626ca504cfc0db0679fc5.gifv" height="344" width="auto"/>
 
-<p align="center"><a href="https://urlking.straw.page/">my strawpage directory, because i like making them too much.</a></p>
+<h3>HAII i don't know what 2 put down here somewan giv me ideas...</h3>
+
+<p clear="left">
+haiii oomfs <a href="https://github.com/Serpent-of-Eden">@Serpent-Of-Eden</a> <a href="https://github.com/foulblaze">@foulblaze</a> <a href="https://github.com/tongariz">@tongariz</a> <a href="https://rentry.co/heartmai">@heartmai</a> & other oomfs i sit with that don't have links & also all my green names i love u alllll hehehehe >ᴗ<
+</p>
+
+<p><b>PSA I WILL BLOCK & REPORT YOU IF YOU'RE A MINOR IN THE 18+ SERVER & I FIND OUT!!! I WILL NOT SPEND MY TIME TRYING TO TEACH YOU ABOUT INTERNET SAFETY & TELL YOU TO LEAVE I WILL JUST BLOCK & REPORT YOU!!!</b></p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/a52e50c0135575a3769f70ca3c83d2e0/00112e729c1d4712-31/s100x200/e15f7ab5e5bbcb849599e008b73d6cc8607cb6e1.gifv">
+</p>
+<sub>sign my ata please!! i'll do anything for it! selflessness, contribution, service! U・ᴥ・U</sub>
+<p></p>
+<a href="https://keaj.atabook.org/">ata</a> ⋆ <a href="https://guns.lol/keaj">guns.lol</a> ⋆ <a href="https://urlking.straw.page/">strawpage directory</a>
