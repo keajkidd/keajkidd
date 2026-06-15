@@ -2,7 +2,7 @@
 
 <h3>WOOF!! HAII!!! i'm keaj or rae or <a href="https://en.pronouns.page/@keaj">other names</a> !! (๑ᵔ⤙ᵔ๑)〜♪</h3>
 
-⌗ 20, any + neo prns, afrolatina, neurodivergent, disordered, queer & a PERVERT !!!!!
+⌗ 20, any + neo prns, afrolatina, neurodivergent, disordered, queer & a <ins>PERVERT</ins> !!!!!
 
 there's sufficient information about me above but if you're really mega curious & hungry for more of me (who wouldn't be?) then you can check out my links on the left. otherwise let's get to the quick and dirty, wan wan! (°◡°♡)
 
