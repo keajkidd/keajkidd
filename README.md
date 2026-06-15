@@ -24,10 +24,8 @@ there's sufficient information about me above but if you're really mega curious 
 ![](https://komarev.com/ghpvc/?username=keajkidd&color=2E990E&style=plastic&label=slave_contracts_signed)
 
 </div>
-
-
+<p><br></p>
 <p align="center">
-  <br>
 <img clear="left" align="center" src="https://static.wikia.nocookie.net/charisma-house/images/f/fe/%28Iori%29_They%27re_Just_Ordinary_Guys_LINE_Stickers_1.png/revision/latest?cb=20241011040708" height="100" width="auto">
   <br>
 <i>"Selflessness, contribution, service!"</i>
@@ -40,7 +38,7 @@ there's sufficient information about me above but if you're really mega curious 
 <h3>HAII i don't know what 2 put down here somewan giv me ideas...</h3>
 
 <p clear="left">
-haiii oomfs <a href="https://github.com/Serpent-of-Eden">@Serpent-Of-Eden</a> <a href="https://github.com/foulblaze">@foulblaze</a> <a href="https://github.com/tongariz">@tongariz</a> <a href="https://rentry.co/heartmai">@heartmai</a> & other oomfs i sit with that don't have links & also all my green names i love u alllll hehehehe >ᴗ<
+haiii oomfs <a href="https://github.com/Serpent-of-Eden">@Serpent-Of-Eden</a> <a href="https://github.com/foulblaze">@foulblaze</a> <a href="https://github.com/tongariz">@tongariz</a> <a href="https://rentry.co/heartmai">@heartmai</a> & other oomfs i sit w/ that don't have links & also all my green names i love u alllll hehehehe >ᴗ<
 </p>
 
 <p><b>PSA I WILL BLOCK & REPORT YOU IF YOU'RE A MINOR IN THE 18+ SERVER & I FIND OUT!!! I WILL NOT SPEND MY TIME TRYING TO TEACH YOU ABOUT INTERNET SAFETY & TELL YOU TO LEAVE I WILL JUST BLOCK & REPORT YOU!!!</b></p>
