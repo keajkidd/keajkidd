@@ -38,7 +38,7 @@ there's sufficient information about me above but if you're really mega curious 
 <h3>i dunno wat 2 put down here somewan giv me ideas...</h3>
 
 <p clear="left">
-haiii oomfs <a href="https://github.com/Serpent-of-Eden">@Serpent-Of-Eden</a> <a href="https://github.com/foulblaze">@foulblaze</a> <a href="https://github.com/tongariz">@tongariz</a> <a href="https://github.com/heartmai">@heartmai</a> & other oomfs i sit w/ that don't have links & also all my green names i love u alllll hehehehe >ᴗ<
+haiii oomfs <a href="https://github.com/tornsuture">@Serpent-Of-Eden</a> <a href="https://github.com/foulblaze">@foulblaze</a> <a href="https://github.com/tongariz">@tongariz</a> <a href="https://github.com/heartmai">@heartmai</a> & other oomfs i sit w/ that don't have links & also all my green names i love u alllll hehehehe >ᴗ<
 </p>
 
 <p><b>PSA I WILL BLOCK & REPORT YOU IF YOU'RE A MINOR IN THE 18+ SERVER & I FIND OUT!!! I WILL NOT SPEND MY TIME TRYING TO TEACH YOU ABOUT INTERNET SAFETY & TELL YOU TO LEAVE I WILL JUST BLOCK & REPORT YOU!!!</b></p>
