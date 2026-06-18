@@ -48,4 +48,4 @@ haiii oomfs <a href="https://github.com/tornsuture">@tornsuture</a> <a href="htt
 </p>
 <sub>sign my ata please!! i'll do anything for it! selflessness, contribution, service! U・ᴥ・U</sub>
 <p></p>
-<a href="https://keaj.atabook.org/">ata</a> ⋆ <a href="https://guns.lol/keaj">guns.lol</a> ⋆ <a href="https://urlking.straw.page/">strawpage directory</a>
+<a href="https://keaj.atabook.org/">ata</a> ⋆ <a href="https://listography.com/keaj">listo</a> ⋆ <a href="https://guns.lol/keaj">guns.lol</a> ⋆ <a href="https://urlking.straw.page/">strawpage directory</a>
