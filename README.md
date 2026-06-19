@@ -21,7 +21,7 @@ there's sufficient information about me above but if you're really mega curious 
 - kisses boops cuddles etc are absolutely fine especially if i'm sitting alone!! if im with someone please whisper to ask first! ヽ(・∀・)ﾉ
 <div align="center">
 
-![visitors](https://komarev.com/ghpvc/?username=keajkidd&color=2E990E&style=flat&label=slave+contracts+signed)
+![](https://komarev.com/ghpvc/?username=keajkidd&color=2E990E&style=plastic&label=slave_contracts_signed)
 
 </div>
 <p><br></p>
