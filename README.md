@@ -4,7 +4,7 @@
 
 ⌗ 20, any + neo prns, afrolatina, neurodivergent, disordered, queer & a <ins>PERVERT</ins> !!!!!
 
-there's sufficient information about me above but if you're really mega curious & hungry for more of me (who wouldn't be?) then you can check out my links on the left. otherwise let's get to the quick and dirty, wan wan! (°◡°♡)
+there's sufficient information about me above but if you're really mega curious & hungry for more of me (who wouldn't be?) then you can check out my links on the left or at the bottom. otherwise let's get to the quick and dirty, wan wan! (°◡°♡)
 
 
   <h3><p align="center">BYI:</p></h3>
