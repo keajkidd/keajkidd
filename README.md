@@ -49,3 +49,16 @@ haiii oomfs <a href="https://github.com/tornsuture">@tornsuture</a> <a href="htt
 <sub>sign my ata please!! i'll do anything for it! selflessness, contribution, service! U・ᴥ・U</sub>
 <p></p>
 <a href="https://keaj.atabook.org/">ata</a> ⋆ <a href="https://listography.com/keaj">listo</a> ⋆ <a href="https://guns.lol/keaj">guns.lol</a> ⋆ <a href="https://urlking.straw.page/">strawpage directory</a>
+
+<p><br></p>
+<p align="center">
+<img clear="left" align="center" src="https://static.wikia.nocookie.net/charisma-house/images/0/0b/%28Iori%29_They%27re_Just_Ordinary_Guys_LINE_Stickers_2.png/revision/latest?cb=20241011040722" height="100" width="auto">
+  <br>
+<i>"Order me around! Have your way with me!"</i>
+</p>
+
+<h2 align="center">arigathanks gozaimuch for the pony town nominations!</h2>
+
+thank you to <a href="https://github.com/pt-fashion">@pt-fashion</a> & <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> for nominating me as pony town's <b>Yami Yugi</b>, <b>Champion Red of the Kanto Region</b>, <b>#1 Kylar Fan</b> & <b>Iori Motohashi's Owner</b> as well as nominating me into the <b>Cutest Ponies</b> category! what fun & fitting things to be known as! (¯▿¯)
+
+https://github.com/user-attachments/assets/58730268-49ed-4658-95a5-f6714f2f46da
