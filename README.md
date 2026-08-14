@@ -57,8 +57,11 @@ haiii oomfs <a href="https://github.com/tornsuture">@tornsuture</a> <a href="htt
 <i>"Order me around! Have your way with me!"</i>
 </p>
 
+<details>
+  <summary>pony town nominations & an extra surprise too! hidden away to keep it neat & clean~ </summary>
 <h2 align="center">arigathanks gozaimuch for the pony town nominations!</h2>
 
 thank you to <a href="https://github.com/pt-fashion">@pt-fashion</a> & <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> for nominating me as pony town's <b>Yami Yugi</b>, <b>Champion Red of the Kanto Region</b>, <b>#1 Kylar Fan</b> & <b>Iori Motohashi's Owner</b> as well as nominating me into the <b>Cutest Ponies</b> category! what fun & fitting things to be known as! (¯▿¯)
 
 https://github.com/user-attachments/assets/58730268-49ed-4658-95a5-f6714f2f46da
+</details>
